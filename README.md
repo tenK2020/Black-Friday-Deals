@@ -18,6 +18,7 @@ This is a list of all Black Friday Deals for macOS / iOS Software & Books in 202
 ### 💸 [SQLPro Studio](https://www.sqlprostudio.com/blackfriday.html) – A fully native database client for macOS and iOS. · 50% off
 
 ## 🎛 Utility Software
+### 💰 [NESSUS PROFESSIONAL](https://store.tenable.com/1479/purl-webNessusOneYearOptin?x-promotion=GHblackFriday) – 50% Off Nessus Pro Coupon TakeHalf
 ### 💸 [EaseUS MobiSaver and Data Recovery Wizard for Mac](https://www.easeus.com/campaign/2021-black-friday.html) – iOS and macOS data recovery • 60% off till 23 Nov
 ### 💻 [SideMirror](https://sidemirrorapp.com) - Useful tool for presenters. 50% off through Cyber Monday!
 
